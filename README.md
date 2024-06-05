@@ -1,1 +1,1 @@
-![image](https://github.com/MuhamadHilalFakhri/praktikum/assets/126468415/02de574d-b8a4-4e62-b2ed-0502d4e1d2a1)
+![image](https://github.com/MuhamadHilalFakhri/Tugas13_20220140151/assets/126468415/d0667917-b366-4596-ad10-d4eecbd4b6c2)
